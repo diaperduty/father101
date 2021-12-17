@@ -25,6 +25,10 @@ Helped identify when to conceive.
 Depending on when you find out, you could be somewhere in between to near the end of the 1st Trimester. We found out about halfway through and the first words out of my wife's mouth were "Oh shit, we're pregnant." That sums it up pretty well. 
 
 After you find out, there is a really regular cadence of doctor visits and the doctors should guide you on what to do and what to expect.
+
+Decide on when and who you would like to share the news with. Micarriages are highest from week 0 to week 6. 
+* https://www.healthline.com/health/pregnancy/miscarriage-rates-by-week#risk-rates
+
 ### What to buy
 Pregnancy test.
 * https://www.amazon.com/Clearblue-Digital-Pregnancy-Smart-Countdown/dp/B0000B11WE
@@ -35,9 +39,6 @@ I found that this book was really easy to read and was shocking accurate in what
 
 ## 2nd Trimester
 ## What to expect
-Decide on when and who you would like to share the news with. Micarriages are highest from week 0 to week 6. 
-* https://www.healthline.com/health/pregnancy/miscarriage-rates-by-week#risk-rates
-
 The 2nd Trimester is usually the easiest Trimester as the mother is past the nausea (if she had it) and the happy hormones have kicked in. If you are up for it, now is a good time to schedule a BabyMoon so that you two can get away one last time before the big day. 
 
 ### What to buy
