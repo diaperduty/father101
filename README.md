@@ -64,6 +64,7 @@ Here's most of what we bought from the registries. Most of these items took us w
 
 ### Stroller
 **Stroller** - As an engineer, I thought the stroller was very well-engineered, but does lean on the heavy side. I believe the Cruz is a little lighter, but only has capacity for one baby.
+
 https://www.amazon.com/gp/product/B07Z6Y5VCB?colid=1A1IPTXLJVH6S&coliid=I1HNU3NIDQK2K&ref=br_ADD_TO_CART_title_link
 
 **Infant Car Seat** - This car seat was amazing and worked with our stroller. Our baby ended up growing quite fast (87% for height) and we were able to use this up until 8 months. I know some people buy convertible car seats right out the bat, but now that we have a convertible seat, we think it would have been a bit too big for us, so we enjoyed having a smaller infant car seat to start with. 
