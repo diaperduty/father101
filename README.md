@@ -135,6 +135,10 @@ https://www.amazon.com/Manhattan-Toy-Wimmer-Ferguson-Infant-Mobile/dp/B008ZB5E2K
 
 https://www.amazon.com/gp/product/B0767QWD4G?colid=1A1IPTXLJVH6S&coliid=I1X6WYW5H8HHDV&ref=br_ADD_TO_CART_title_link
 
+**Bottle Brush** - Must have. Made cleaning bottles less painful.
+
+https://www.amazon.com/gp/product/B0771RG4VH/ref=oh_aui_search_detailpage?ie=UTF8&psc=1
+
 **Bottle Sterilizer** - We LOVED this. It saved so much time.
 
 https://www.amazon.com/gp/product/B007VBXKG2?colid=1A1IPTXLJVH6S&coliid=I2RYIW04ASTNYT&ref=br_ADD_TO_CART_title_link
